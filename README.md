@@ -1,0 +1,1 @@
+# Test_News_App_privacy_policy
